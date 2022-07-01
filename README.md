@@ -1,0 +1,1 @@
+# TAKASHIMINOWA.github.io
